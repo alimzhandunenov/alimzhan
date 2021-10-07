@@ -1,2 +1,0 @@
-#alimzhandunenov
-# alimzhan
